@@ -1,1 +1,1 @@
-# GB_DZ_GIT_SEM1 lol
+# GB_DZ_GIT_SEM1
